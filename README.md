@@ -6,5 +6,5 @@
 → @butterkkj 🍄
 ![](https://media.tenor.com/zVvViQKqa0MAAAAi/psybirdb1oom.gif)
 
-→ Obrigada por visitar meu perfil!
-→ 
+→ Obrigada por visitar meu perfil!💋
+→ maria.barbosa.claudio@escola.pr.gov.br
